@@ -3,4 +3,5 @@ Energy issues have always been important in international relations, but in rece
 
 
 You can check my certificate in the link below: 
+
 https://coursera.org/share/96b3bd69c98da4aba115092c81b7b002
